@@ -1,4 +1,4 @@
-
+Magnetic for macOS smart Addon: screenshot-tools & OCR-support is the best Magnetic for macOS addon, featuring screenshot-tools and OCR-support. Safe, efficient, and optimized for
 
 
 
